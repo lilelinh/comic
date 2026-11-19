@@ -1,4 +1,4 @@
-# 🏛️ The Ancient Well
+# 🏛️ Comic: The Ancient Well
 
 *A mysterious tale of secrets, discovery, and the unknown.*
 
